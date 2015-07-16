@@ -32,3 +32,5 @@ Tuk salah yg pernah Ada
 Tuk khilaf yg sempat terucap
 Pintu maaf selalu kuharap
 Met Idul Fitri
+
+Selengkapnya, kartu <a href="http://zeb.link/blog/KARTU-UCAPAN-IDUL-FITRI-BANYAK-PILHAN-2015.html">ucapan selamat idul</a> fitri.
